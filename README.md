@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 💬 Ask me about ...
+💬 Ask me about 💻
